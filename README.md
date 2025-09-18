@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **priyanshuprasad2517@gmail.com**
 
-- ⚡ Fun fact ** *Documenting my growth from beginner to pro — and future me will thank present me!***
+- ⚡ Fun fact - *Documenting my growth from beginner to pro — and future me will thank present me!***
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
